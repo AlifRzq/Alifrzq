@@ -1,4 +1,4 @@
-### See ya!!1 I'm Alif 👋
+### See ya!!! I'm Alif 👋
 
 <!--
 **AlifRzq/Alifrzq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
